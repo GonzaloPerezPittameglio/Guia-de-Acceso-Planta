@@ -1,1 +1,0 @@
-# Guia-de-Acceso-Planta
